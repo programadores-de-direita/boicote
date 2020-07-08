@@ -27,7 +27,7 @@ A empresa declarou que
 ---
 
 ### 🚫 Friboi / JBS (Cancelar) 
-![Magazine Luiza](/assets/img/magazine-luiza.jpg)
+![Magazine Luiza](/assets/img/friboi.jpg)
 
 #### Motivo:
 Empresa envolvida em esquema de adulteração de carnes, suborno de fiscais, entre outras acusações.

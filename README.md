@@ -9,9 +9,9 @@
 A empresa foi responsável pela exposição do "museu queer" que fazia vilipendio a fé cristã e apologia a pedofilia, e também pelo episódio da criança tocando no homem nu.
 
 #### Fontes:
-[Exposição - museu queer](https://hyagootto.jusbrasil.com.br/artigos/497175040/exposicao-queer-museu-promovido-pelo-santander-cultural-arte-ou-crime "Exposição - museu queer").  
+[Exposição Museu Queer](https://hyagootto.jusbrasil.com.br/artigos/497175040/exposicao-queer-museu-promovido-pelo-santander-cultural-arte-ou-crime "Exposição Museu Queer").  
 
-[Exposição Homem Nu - La Bête MAM](https://g1.globo.com/sao-paulo/noticia/interacao-de-crianca-com-artista-nu-em-museu-de-sp-gera-polemica.ghtml "Exposição Homem Nu - La Bête MAM").  
+[Exposição Homem Nu (La Bête MAM)](https://g1.globo.com/sao-paulo/noticia/interacao-de-crianca-com-artista-nu-em-museu-de-sp-gera-polemica.ghtml "Exposição Homem Nu (La Bête MAM)").  
 
 ---
 

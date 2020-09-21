@@ -20,13 +20,14 @@ A empresa foi responsável pela exposição do "museu queer" que fazia vilipendi
 
 #### Motivo:
 A empresa pretende contratar apenas funcionários negros no próximo processo seletivo, o que causa um conflito racial totalmente desnecessário.
+
 #### Fontes:
 [Magazine Luiza diz suportar 2 anos com lojas fechadas](https://revistapegn.globo.com/Banco-de-ideias/Varejo/noticia/2020/09/pegn-programa-de-trainees-do-magazine-luiza-tera-apenas-candidatos-negros.html "Programa de trainees do Magazine Luiza terá apenas candidatos negros").  
 
 ---
 
 ### 🚫 Friboi / JBS (Cancelar) 
-![Magazine Luiza](/assets/img/friboi.jpg)
+![Friboi/JBS](/assets/img/friboi.jpg)
 
 #### Motivo:
 Empresa envolvida em esquema de adulteração de carnes, suborno de fiscais, entre outras acusações.

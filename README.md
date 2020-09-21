@@ -15,14 +15,8 @@ A empresa foi responsável pela exposição do "museu queer" que fazia vilipendi
 
 ---
 
-### 🚫 Magazine Luiza (Cancelar) 
-![Magazine Luiza](/assets/img/magazine-luiza.jpg)
-
-#### Motivo:
-A empresa declarou que 
-
 #### Fontes:
-[Magazine Luiza diz suportar 2 anos com lojas fechadas](https://www.folhaimpacto.com.br/noticia/5445/magazine-luiza-diz-ter-folego-para-suportar-2-anos-de-lojas-fechadas "Magazine Luiza diz suportar 2 anos com lojas fechadas").  
+[Magazine Luiza diz suportar 2 anos com lojas fechadas](https://revistapegn.globo.com/Banco-de-ideias/Varejo/noticia/2020/09/pegn-programa-de-trainees-do-magazine-luiza-tera-apenas-candidatos-negros.html "Programa de trainees do Magazine Luiza terá apenas candidatos negros").  
 
 ---
 
